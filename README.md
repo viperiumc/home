@@ -1,1 +1,1 @@
-Noise Official Website
+olur öyle şeyler takma kafaya
